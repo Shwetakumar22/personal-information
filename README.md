@@ -3,7 +3,7 @@
 ### School of Allied Health Science  
 **Designation**- Assistant Professor  
 ![my picture](https://github.com/Shwetakumar22/personal-information/blob/main/Image/profile%20picture%20and%20signature_1.jpg)  
-![My CV](  
+![My CV](https://github.com/Shwetakumar22/personal-information/blob/main/CV/SHWETA%20resume.docx)  
 
 *OBJECTIVE*
  Experienced professional in the Allied Medical field with a demonstrated history of working in one of the most renowned hospitals of India, Max Saket. Currently serving as Assistant Professor and currently serving as deputy HOD at school of allied health sciences at MVN University, she aspires to improve her knowledge in her domain and research.  
