@@ -220,9 +220,7 @@
 # 
  EXTRA-CURRICULAR ACTIVITIES  
 
-* Attended and held 2nd<sup> </sup>position in poster presentation on recent advancements in physiotherapy of uterine prolapse in PHYSIOCON- 2014 held at I.T.S. college of 
-
-         physiotherapy, Ghaziabad on 1st November 2014.  
+* Attended and held 2nd<sup> </sup>position in poster presentation on recent advancements in physiotherapy of uterine prolapse in PHYSIOCON- 2014 held at I.T.S. college of  physiotherapy, Ghaziabad on 1st November 2014. [certificate]()
 
 * Achievement certificate awarded by Max smart super specialty hospital, Saket for Best physiotherapist in the year 2015 as per patient feedback.  
 * First place in Quiz competition at PHYSIOCON 2017 held at Jamia Hamdard, New 
